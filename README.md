@@ -25,4 +25,4 @@ After hours I build apps, usually for someone close to me or because I couldn't 
 
 ### Find me
 
-[LinkedIn](https://www.linkedin.com/in/YOUR-PROFILE)
+[LinkedIn](https://www.linkedin.com/in/izem-vehibe-cercil)
